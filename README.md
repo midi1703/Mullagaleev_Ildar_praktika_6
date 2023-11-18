@@ -1,0 +1,1 @@
+# Mullagaleev_Ildar_praktika_6
